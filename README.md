@@ -1,4 +1,4 @@
-# Hi, I'm RaFin Chowdhury!
+# Hi, I'm Rafin Chowdhury!
 ## About Me
 - I'm in 12th grade at Energy Tech High School!
 - I enjoy:
